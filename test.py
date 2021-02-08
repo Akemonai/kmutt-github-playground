@@ -1,4 +1,4 @@
 # kmutt-github-playground
 
-KMUTT IS DA BEST
+EARTDY IS DA BEST
 
